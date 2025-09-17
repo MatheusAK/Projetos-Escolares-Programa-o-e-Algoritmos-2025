@@ -1,0 +1,1 @@
+# Projetos-Escolares-Programa-o-e-Algoritmos-2025
